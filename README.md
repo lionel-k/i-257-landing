@@ -1,4 +1,4 @@
-# Innovate 257 Community
+# Innovate 257
 
 We are a network of professionals and students in the domains of Sciences, Engineering, Business, Humanities and Social Sciences, aspiring to bring innovation in Burundi through collaboration, mentorship, and initiatives.
 
